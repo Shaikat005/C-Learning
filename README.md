@@ -22,6 +22,6 @@ Feel free to explore, learn, and even suggest improvements or corrections. Happy
 3. Learn and contribute!
 
 ## Connect with Me
-Let's connect! If you have questions, suggestions, or just want to chat about coding, feel free to reach out to me on [Twitter](https://twitter.com/your-twitter-handle) or [LinkedIn](https://linkedin.com/in/your-linkedin-profile).
+Let's connect! If you have questions, suggestions, or just want to chat about coding, feel free to reach out to me on [Facebook]([https://twitter.com/your-twitter-handle](https://www.facebook.com/profile.php?id=61553470680229&mibextid=ZbWKwL)) or [Instagram]([https://linkedin.com/in/your-linkedin-profile](https://www.instagram.com/leave_shaikat_alone?igsh=MTN0cWx3bHhxaHhuYg==)https://www.instagram.com/leave_shaikat_alone?igsh=MTN0cWx3bHhxaHhuYg==).
 
 Happy coding!
